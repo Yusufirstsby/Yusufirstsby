@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yusufirstsby
-- 👀 I’m interested in basic coding
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in being a sigma
+- 🌱 I’m currently learning how to mewing
+- 💞️ I’m looking to collaborate on sigma males
 - 📫 How to reach me? You dan contact t.me/yusufirstsby
 
 <!---
